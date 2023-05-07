@@ -9,5 +9,9 @@
 <u>Ищу возможность стажировки по специальности "Frontend-разработчик" </u>
 
 
-![](https://i.imgur.com/HJ1VbMj.png)
+
+
+![6252ca89a8fa5635432086](https://user-images.githubusercontent.com/105821395/236651807-e573b54b-6ffb-46f0-90fd-6530c85d74df.jpg)
+
+
 
